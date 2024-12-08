@@ -25,7 +25,7 @@ Portugal
 Spain
 UK
 
-# The promotion is running from Monday, April 23, 2024
+# The promotion is running from Monday, December 08, 2024 2025
 
 
 # Fortnite Active Codes Skins​
